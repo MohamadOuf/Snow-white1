@@ -8,3 +8,5 @@ she fell sleep and the story to be continued by adam
 Now I, Adam, the narrator, am I charge of the story and where it goes.
 Snow White, wakes up and suddenly has the ability to fly and shoot lazers from her eyes,
 "I'll take revenge on that awful witch and her dumb apple!"
+Snow white then begins to plot on how sucessfully she will take revenge on the evil witch 
+Snow white jots down many revenge plans but is conflicted on which exact plan she will exucute 
