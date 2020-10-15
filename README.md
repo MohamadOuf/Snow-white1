@@ -10,3 +10,5 @@ Snow White, wakes up and suddenly has the ability to fly and shoot lazers from h
 "I'll take revenge on that awful witch and her dumb apple!"
 Snow white then begins to plot on how sucessfully she will take revenge on the evil witch 
 Snow white jots down many revenge plans but is conflicted on which exact plan she will exucute 
+After a whole lot of thinking she finally decides on the best revenge plan. 
+Snow white sneaks up behind the witch and then karate chops her. As the witch falls Snow White lazers the witch into oblivion, The End. 
